@@ -1,3 +1,3 @@
 # Proyecto Chrome
 Mi primer proyecto
-https://gsmneo.info/
+https://gsmneofrpgratis.com/
